@@ -1,2 +1,3 @@
 # hello-world
-hyeoo boiiiiiii :P
+
+im boring and like emo bands but also some pop haha
